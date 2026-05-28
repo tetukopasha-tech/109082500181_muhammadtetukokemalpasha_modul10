@@ -1,1 +1,0 @@
-# 109082500181_muhammadtetukokemalpasha_modul10
